@@ -1,0 +1,2 @@
+# G1F021005_SEVIA-AYU-WANDINDA_ASD_DLL
+Nama : Sevia Ayu Wandinda     NPM : G1F021005
